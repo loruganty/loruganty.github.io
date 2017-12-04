@@ -1,1 +1,0 @@
-# loruganty.github.io
